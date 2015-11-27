@@ -5,4 +5,4 @@ it as you wish. Ahem, blogspot/blogger/wordpress don't give you that freedom.
 Anyway, feel free to do what you please with it! You don't have to link back to me (though if
 you did, it would be very kind).
 
-Have fun! Check out my website at razaahmed.com and blog at razaahmed.com/blog.html
+Have fun! Check out my website at razaahmed.com and blog at razaahmed.com/blog
